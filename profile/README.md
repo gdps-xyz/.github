@@ -1,1 +1,1 @@
-# gdps.xyz
+# GDPS.xyz
